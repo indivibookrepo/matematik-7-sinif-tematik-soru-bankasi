@@ -1,0 +1,1 @@
+# matematik-7-sinif-tematik-soru-bankasi
